@@ -17,3 +17,8 @@
 
 
 ## Connect with ME 
+Connect with me on 
+   - aymenarsalan12@gmail.com
+- 🤝 Open to connecting with developers, students, and tech enthusiasts.
+- 📫 Feel free to connect with me for collaboration and learning opportunities.
+- 🌐 Always interested in networking, learning, and working on new projects.
